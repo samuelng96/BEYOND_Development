@@ -5,8 +5,6 @@ Harambee has intercepted.
 I neeed backup
 
 
-WU yue tian wu yue tian
-
 
 HELLLOOOO WEI KUAN
 212121
